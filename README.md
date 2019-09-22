@@ -18,7 +18,6 @@ https://www.youtube.com/watch?v=NbwMZXZcebY
 ```
 yaaana
 yaaana
-
 zacznę tak
 zacznę tak
 byle jak
