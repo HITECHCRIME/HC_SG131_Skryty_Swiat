@@ -39,33 +39,41 @@ woop woop woop -
 twoje słowa nie do zdarcia
 kołem toczysz życia loop (skracasz)
 
-przyznam ci, brakuje siły
+przyznam się, brakuje siły
 
 kontekstualnych snów
 
 wybierz
 idziesz w las 
-czy w przód
+czy przód
 
 wybierz
 idziesz w las 
-czy w przód
+czy przód
 
 tutaj opisana sytuacja...
+obronię moje słowa
 
 żadna racja nie ma wsparcia
 twoje słowa nie do zdarcia
 kołem toczysz życia loop
 przyznam nie brakuje siły, kon-TEKSTU
-ale snów, wybierz idziesz w las czy w przód
+ale snów, wybierz idziesz w las czy przód
 
 wybierz
 idziesz w las 
-czy w przód
+czy przód
 
 wybierz
 idziesz w las 
-czy w przód
+czy przód
+
+żadna racja nie ma wsparcia
+twoje słowa nie do zdarcia
+kołem toczysz życia loop (skracasz)
+
+przyznam ci brakuje siły
+bez kontekstualnych snów
 
 czytaj opis
 
