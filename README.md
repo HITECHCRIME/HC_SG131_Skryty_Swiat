@@ -17,13 +17,23 @@ https://www.youtube.com/watch?v=NbwMZXZcebY
 ## Lyrics
 
 ```
-zacznę tak
-zacznę tak
+yaaana
+yaaana
 
 zacznę tak
 zacznę tak
 
 zacznę tak
+zacznę tak
+
+zacznę tak
+zacznę tak yeah
+
+zacznę tak yeah
+
+zacznę zacznę zacznę zacznę 
+
+woop woop woop -
 
 żadna racja nie ma wsparcia
 twoje słowa nie do zdarcia
@@ -41,6 +51,7 @@ wybierz
 idziesz w las 
 czy w przód
 
+tutaj opisana sytuacja...
 
 żadna racja nie ma wsparcia
 twoje słowa nie do zdarcia
