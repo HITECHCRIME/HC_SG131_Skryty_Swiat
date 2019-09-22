@@ -70,6 +70,7 @@ wybierz
 idziesz w las 
 czy przód
 
+(radio effect)
 żadna racja nie ma wsparcia
 twoje słowa nie do zdarcia
 kołem toczysz życia loop (skracasz)
