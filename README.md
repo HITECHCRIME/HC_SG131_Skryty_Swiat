@@ -20,12 +20,38 @@ https://www.youtube.com/watch?v=NbwMZXZcebY
 zacznę tak
 zacznę tak
 
+zacznę tak
+zacznę tak
+
+zacznę tak
+
 żadna racja nie ma wsparcia
 twoje słowa nie do zdarcia
 kołem toczysz życia loop
 
-przyznam nie brakuje mi
+przyznam ci brakuje siły
+
 kontekstualnych snów
+
+wybierz
+idziesz w las 
+czy w przód
+
+wybierz
+idziesz w las 
+czy w przód
+
+żadna racja nie ma wsparcia
+twoje słowa nie do zdarcia
+kołem toczysz życia loop
+
+przyznam ci brakuje siły
+
+kontekstualnych snów
+
+wybierz
+idziesz w las 
+czy w przód
 
 wybierz
 idziesz w las 
