@@ -107,6 +107,14 @@ bez względu na intencje
 chore, to jest chore
 
 woop woop woop
+
+(?) 
+żadna racja nie ma wsparcia
+twoje słowa nie do zdarcia
+kołem toczysz życia loop
+przyznam nie brakuje siły, kon-TEKSTU
+ale snów, wybierz idziesz w las czy przód
+
 ```
 
 ## Lyrics Testing Ground
