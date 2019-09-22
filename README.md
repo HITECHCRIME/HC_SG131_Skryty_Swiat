@@ -27,7 +27,7 @@ zacznę tak
 
 żadna racja nie ma wsparcia
 twoje słowa nie do zdarcia
-kołem toczysz życia loop
+kołem toczysz życia loop (skracasz)
 
 przyznam ci brakuje siły
 
