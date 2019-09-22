@@ -7,7 +7,8 @@
 ## Project Data
 
 Description.
-
+(Free) Dark Underground Type Beat / Hip Hop Instrumental - "Distress" | Prod. D-Low
+https://www.youtube.com/watch?v=NbwMZXZcebY
 
 **Title:**  / **Featuring:** 
 
@@ -16,6 +17,21 @@ Description.
 ## Lyrics
 
 ```
+zacznę tak
+zacznę tak
+
+żadna racja nie ma wsparcia
+twoje słowa nie do zdarcia
+kołem toczysz życia loop
+
+przyznam nie brakuje mi
+kontekstualnych snów
+
+wybierz
+idziesz w las 
+czy w przód
+
+czytaj opis
 
 
 ```
