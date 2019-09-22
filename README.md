@@ -105,7 +105,6 @@ bez względu na intencje
 chore, to jest chore
 
 woop woop woop
-
 ```
 
 ## Lyrics Testing Ground
