@@ -36,7 +36,7 @@ twoje słowa nie do zdarcia
 kołem toczysz życia loop (skracasz)
 
 przyznam się, brakuje sił
-kontekstualnych snów
+kontekstualnych snów / kontekstu ani moich słów (?)
 
 wybierz
 idziesz w las 
