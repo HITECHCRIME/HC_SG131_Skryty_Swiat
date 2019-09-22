@@ -41,7 +41,6 @@ twoje słowa nie do zdarcia
 kołem toczysz życia loop (skracasz)
 
 przyznam się, brakuje sił
-
 kontekstualnych snów
 
 wybierz
@@ -52,8 +51,10 @@ wybierz
 idziesz w las 
 czy przód
 
-tutaj opisana sytuacja...
+tutaj opisana - sytuacja...
 obronię moje słowa
+
+x
 
 żadna racja nie ma wsparcia
 twoje słowa nie do zdarcia
@@ -63,7 +64,7 @@ ale snów, wybierz idziesz w las czy przód
 
 wybierz
 idziesz w las 
-czy przód
+czy przód yeah
 
 wybierz
 idziesz w las 
@@ -75,6 +76,14 @@ kołem toczysz życia loop (skracasz)
 
 przyznam ci brakuje siły
 kooon-tekstualnych snów
+
+wybierz
+idziesz w las 
+czy przód
+
+wybierz
+idziesz w las 
+czy przód
 
 skryty świat w mojej głowie
 często na kolanach stan
