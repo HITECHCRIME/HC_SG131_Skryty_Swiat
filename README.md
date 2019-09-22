@@ -76,6 +76,13 @@ kołem toczysz życia loop (skracasz)
 przyznam ci brakuje siły
 kooon-tekstualnych snów
 
+skryty świat w mojej głowie
+często na kolanach stan
+często boję się że przed samym sobą nie odpowiem
+konstruuję koniec dla samego siebie
+bez wachania, brak pretensji
+koniec pętli mi zabrania
+
 czytaj opis
 
 
