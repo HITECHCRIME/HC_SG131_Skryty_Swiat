@@ -46,7 +46,11 @@ idziesz w las
 czy przód
 
 tutaj opisana - sytuacja...
-obronię moje słowa
+obronię moje słowa 
+od tego aplikacja
+click click tap tap
+taki łańcuch szczęścia
+nieważący niby nic
 
 x
 
