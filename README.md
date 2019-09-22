@@ -103,9 +103,10 @@ końcu pyta czy to zdrowe
 tak to zdrowe 
 
 takie zdrowe
-cyrograf stał się łatwym szyfrem
+cyrografy łatwym szyfrem
 bez względu na intencje
 chore, to jest chore
+zawsze wyjdzie bokiem
 
 woop woop woop
 
