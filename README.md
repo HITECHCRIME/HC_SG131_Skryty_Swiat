@@ -12,7 +12,7 @@ https://www.youtube.com/watch?v=NbwMZXZcebY
 
 **Title:** Skryty Świat / **Featuring:** MOTHNODE
 
-**Production:** D-Low / **Lyrics:** 
+**Production:** D-Low / **Lyrics:** MOTHNODE
 
 ## Lyrics
 
