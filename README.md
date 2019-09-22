@@ -51,6 +51,7 @@ od tego aplikacja
 click click tap tap
 taki łańcuch szczęścia
 nieważący niby nic
+ale będzie znaczyć za 20 lat
 
 x
 
