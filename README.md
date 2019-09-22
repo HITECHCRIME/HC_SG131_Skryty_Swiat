@@ -83,6 +83,11 @@ konstruuję koniec dla samego siebie
 bez wachania, brak pretensji
 koniec pętli mi zabrania
 
+powróz zaciśnięty, akcja gęsta
+zryty umysł we współczesnej dobie
+prześwietlony przez
+systemy autodestrukcji 
+
 czytaj opis
 
 
