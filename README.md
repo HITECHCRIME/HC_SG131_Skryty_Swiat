@@ -22,6 +22,7 @@ yaaana
 
 zacznę tak
 zacznę tak
+byle jak
 
 zacznę tak
 zacznę tak
@@ -39,7 +40,7 @@ woop woop woop -
 twoje słowa nie do zdarcia
 kołem toczysz życia loop (skracasz)
 
-przyznam się, brakuje siły
+przyznam się, brakuje sił
 
 kontekstualnych snów
 
@@ -73,7 +74,7 @@ twoje słowa nie do zdarcia
 kołem toczysz życia loop (skracasz)
 
 przyznam ci brakuje siły
-bez kontekstualnych snów
+kooon-tekstualnych snów
 
 czytaj opis
 
