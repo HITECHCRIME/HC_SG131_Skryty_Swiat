@@ -100,7 +100,10 @@ zanim coś podpiszesz
 czytaj opis
 ktoś na samym 
 końcu pyta czy to zdrowe
-
+tak to zdrowe, takie zdrowe
+cyrograf stał się łatwym szyfrem
+bez względu na intencje
+chore, to jest chore
 
 ```
 
