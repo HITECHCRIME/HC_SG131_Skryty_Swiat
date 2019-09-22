@@ -21,10 +21,8 @@ yaaana
 zacznę tak
 zacznę tak
 byle jak
-
 zacznę tak
 zacznę tak
-
 zacznę tak
 zacznę tak yeah
 
