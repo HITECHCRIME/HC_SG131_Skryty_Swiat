@@ -99,7 +99,7 @@ powróz zaciśnięty, akcja gęsta
 zryty umysł we współczesnej dobie
 prześwietlony przez
 systemy autodestrukcji 
-zanim coś podpiszesz
+- OFFBEAT zanim coś podpiszesz
 czytaj opis
 ktoś na samym 
 końcu pyta czy to zdrowe
