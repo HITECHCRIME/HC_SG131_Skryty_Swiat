@@ -29,7 +29,7 @@ zacznę tak
 twoje słowa nie do zdarcia
 kołem toczysz życia loop (skracasz)
 
-przyznam ci brakuje siły
+przyznam ci, brakuje siły
 
 kontekstualnych snów
 
@@ -40,14 +40,13 @@ czy w przód
 wybierz
 idziesz w las 
 czy w przód
+
 
 żadna racja nie ma wsparcia
 twoje słowa nie do zdarcia
 kołem toczysz życia loop
-
-przyznam ci brakuje siły
-
-kontekstualnych snów
+przyznam nie brakuje siły, kon-TEKSTU
+ale snów, wybierz idziesz w las czy w przód
 
 wybierz
 idziesz w las 
