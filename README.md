@@ -6,8 +6,8 @@
 
 ## Project Data
 
-Description.
-(Free) Dark Underground Type Beat / Hip Hop Instrumental - "Distress" | Prod. D-Low
+Beat: (Free) Dark Underground Type Beat / Hip Hop Instrumental - "Distress" | Prod. D-Low
+
 https://www.youtube.com/watch?v=NbwMZXZcebY
 
 **Title:** Skryty Świat / **Featuring:** MOTHNODE
