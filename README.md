@@ -25,9 +25,7 @@ zacznę tak
 zacznę tak
 zacznę tak
 zacznę tak yeah
-
 zacznę tak yeah
-
 zacznę zacznę zacznę zacznę 
 
 woop woop woop -
