@@ -90,7 +90,7 @@ czy przód
 
 skryty świat w mojej głowie
 często na kolanach stan
-często boję się że przed samym sobą nie odpowiem
+często się boję że przed samym sobą nie odpowiem
 konstruuję koniec dla samego siebie
 bez wachania, brak pretensji
 koniec pętli mi zabrania
