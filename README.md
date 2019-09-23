@@ -110,7 +110,7 @@ chore, to jest chore
 zawsze wyjdzie bokiem
 nie poddawaj się kontroli
 sufit kryty na cordobie
-na pytania prezydentów blockiem (glockiem)
+na pytania prezydentów blockiem/glockiem (odpowiadam glockiem)
 
 nacja w nacji przeciw stronie
 kalka z jakiej racji 
@@ -118,8 +118,6 @@ kolejnej formie
 nie rozumiesz co to progres?
 
 powróz zaciśnięty, akcja gęsta - change for loop
-
-
 
 woop woop woop
 
