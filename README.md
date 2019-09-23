@@ -113,9 +113,9 @@ nie poddawaj się kontroli
 sufit kryty na cordobie
 na pytania prezydentów blockiem (glockiem)
 
-nacja w nacji przeciw 
-kolejnej stronie
-przeciwna kalka, 
+nacja w nacji przeciw stronie
+kalka z jakiej racji 
+kolejnej formie
 nie rozumiesz co to progres?
 
 powróz zaciśnięty, akcja gęsta - change for loop
