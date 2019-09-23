@@ -90,27 +90,32 @@ czy przód
 
 skryty świat w mojej głowie
 często na kolanach stan
-często się boję że przed samym sobą nie odpowiem
+często boję się że przed samym sobą nie odpowiem
+
 konstruuję koniec dla samego siebie
 bez wachania, brak pretensji
 koniec pętli mi zabrania
 
 powróz zaciśnięty, akcja gęsta
 zryty umysł we współczesnej dobie
-prześwietlony przez prrr prrr (pytania?)
-systemy autodestrukcji 
-- OFFBEAT zanim coś podpiszesz
-czytaj opis
-ktoś na samym 
+prześwietlony przez prrr prrr 
+
+zanim coś podpiszesz
+czytaj opis ktoś na samym 
 końcu pyta czy to zdrowe
 tak to zdrowe takie zdrowie
+
 cyrografy łatwym szyfrem
-bez? względu na intencje
+bez? (tych) względu na intencje
 chore, to jest chore
 zawsze wyjdzie bokiem
+na pytania prezydentów blockiem (glockiem)
 nie poddawaj się kontroli
 kryty sufit na cordobie
-kolejnej stronie
+
+na pytania prezydentów blockiem (glockiem)
+przeciw nacjom kolejnej stronie
+przeciwna kalka
 
 powróz zaciśnięty, akcja gęsta - change for loop
 
