@@ -105,7 +105,7 @@ ktoś na samym
 końcu pyta czy to zdrowe
 tak to zdrowe takie zdrowe
 cyrografy łatwym szyfrem
-bez względu na intencje
+bez? względu na intencje
 chore, to jest chore
 zawsze wyjdzie bokiem
 
