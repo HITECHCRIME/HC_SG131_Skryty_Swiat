@@ -95,7 +95,7 @@ często boję się że przed samym sobą nie odpowiem
 konstruuję koniec dla samego siebie
 bez wachania, brak pretensji
 koniec pętli mi zabrania
-
+(konsekwencje)
 powróz zaciśnięty, akcja gęsta
 zryty umysł we współczesnej dobie
 prześwietlony przez prrr prrr 
@@ -106,16 +106,17 @@ końcu pyta czy to zdrowe
 tak to zdrowe takie zdrowie
 
 cyrografy łatwym szyfrem
-bez? (tych) względu na intencje
+beez? (tych) względu na intencje
 chore, to jest chore
 zawsze wyjdzie bokiem
-na pytania prezydentów blockiem (glockiem)
 nie poddawaj się kontroli
-kryty sufit na cordobie
-
+sufit kryty na cordobie
 na pytania prezydentów blockiem (glockiem)
-przeciw nacjom kolejnej stronie
-przeciwna kalka
+
+nacja w nacji przeciw 
+kolejnej stronie
+przeciwna kalka, 
+nie rozumiesz co to progres?
 
 powróz zaciśnięty, akcja gęsta - change for loop
 
