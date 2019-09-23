@@ -103,11 +103,18 @@ systemy autodestrukcji
 czytaj opis
 ktoś na samym 
 końcu pyta czy to zdrowe
-tak to zdrowe takie zdrowe
+tak to zdrowe takie zdrowie
 cyrografy łatwym szyfrem
 bez? względu na intencje
 chore, to jest chore
 zawsze wyjdzie bokiem
+nie poddawaj się kontroli
+kryty sufit na cordobie
+kolejnej stronie
+
+powróz zaciśnięty, akcja gęsta - change for loop
+
+
 
 woop woop woop
 
