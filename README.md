@@ -16,7 +16,6 @@ https://www.youtube.com/watch?v=NbwMZXZcebY
 ## Lyrics
 
 ```
-
 THIS WHOLE SEGMENT NEEDS TOTAL REWORK TILL WOOP WOOP WOOP
 
 yaaana
