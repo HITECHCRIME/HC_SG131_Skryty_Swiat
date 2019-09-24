@@ -112,6 +112,26 @@ nie poddawaj się kontroli
 sufit kryty na cordobie
 na pytania prezydentów blockiem/glockiem (odpowiadam glockiem)
 
+(((
+
+skryty świat w mojej głowie, często na kolanach stan
+często boję się że przed samym sobą nie odpowiem
+
+konstruuję koniec dla samego siebie bez wahania,
+brak pretensji koniec pętli mi zabrania
+powróz zaciśnięty, akcja gęsta
+zryty umysł we współczesnej dobie
+prześwietlony przez prrr prrr (insert)
+zanim coś podpiszesz czytaj opis, ktoś na samym
+końcu pyta czy to zdrowe, tak to zdrowe! takie zdrowie...
+
+cyrografy łatwym szyfrem - bez względu na intencje
+chore, to jest chore co zawsze wyjdzie bokiem
+nie poddawaj się kontroli, sufit kryty na cordobie
+na pytania prezydentów glockiem (what?)
+
+)))
+
 nacja w nacji przeciw stronie
 kalka z jakiej racji 
 kolejnej formie
