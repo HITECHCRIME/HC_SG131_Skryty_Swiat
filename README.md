@@ -167,3 +167,37 @@ ale snów, wybierz idziesz w las czy przód
 ## Notes
 
 ## Music Video
+
+/// HITECH CREΛTIVE_
+Live Creative Ops | Making dark ● moon brands_ User_ INFJ / Λries / Cybershaman / Summoner of Worlds
+
+żadna racja nie ma wsparcia
+twoje słowa nie do zdarcia
+kołem toczysz życia loop
+przyznam ci brakuje siły
+kontekstualnych snów
+
+wybierz idziesz w las 
+czy przód x2
+
+skryty świat w mojej głowie
+często na kolanach stan często 
+boję się że przed samym sobą nie odpowiem
+konstruuję koniec dla samego siebie
+bez wachania, brak pretensji
+koniec pętli mi zabrania (konsekwencje)
+powróz zaciśnięty, akcja gęsta
+zryty umysł we współczesnej dobie
+prześwietlony przez prrr prrr 
+zanim coś podpiszesz
+czytaj opis ktoś na samym 
+końcu pyta czy to zdrowe
+tak to zdrowe takie zdrowie
+cyrografy łatwym szyfrem
+bez względu na intencje
+chore, co jest chore
+zawsze wyjdzie bokiem
+nie poddawaj się kontroli
+sufit kryty na cordobie
+na pytania prezydentów glockiem
+
